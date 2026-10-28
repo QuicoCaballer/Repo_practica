@@ -1,3 +1,3 @@
 pereira
 Mr Yoga
-Mi comida favorita son los Macarrones
+Mi comida favorita es la Lasaña
